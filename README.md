@@ -7,7 +7,7 @@
 
 ---
 
-🎥 **Youtube Demo**: (https://youtu.be/euC5czqq95o)
+🎥 **Youtube Demo**: https://youtu.be/euC5czqq95o
 
 ---
 
